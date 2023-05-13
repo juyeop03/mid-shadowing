@@ -1,4 +1,6 @@
 ## 너의 모든 것 시즌1
+Youtube에서 "ATTIC 영어상영관 채널" 의 도움을 받아 공부합니다.
+
 ### Episode1
 - https://youtu.be/UV5K6tseV7c
 
