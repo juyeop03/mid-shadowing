@@ -13,7 +13,7 @@ Youtube에서 <a href="https://www.youtube.com/@ATTIC">ATTIC 영어상영관 채
 ### ~~Episode4~~
 - https://youtu.be/giqD9YKGGIU
 
-### Episode5
+### ~~Episode5~~
 - https://youtu.be/NCnGfom4rDE
 
 ### Episode6
